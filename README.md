@@ -1,1 +1,1 @@
-![desktop-tutorial](https://user-images.githubusercontent.com/107466722/177011833-68a224b4-2168-4dec-af96-447b7eba6b38.png)
+![desktop-tutorial](https://user-images.githubusercontent.com/107466722/195084199-12db42e7-e7ca-4018-bfb0-ae3786dffa12.png)
